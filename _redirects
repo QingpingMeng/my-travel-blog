@@ -1,0 +1,2 @@
+# Redirect default Netlify subdomain to primary domain
+https://priceless-curie-046c35.netlify.com/* https://travel.qingping.me/:splat 301!
