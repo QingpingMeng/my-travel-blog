@@ -110,7 +110,7 @@ Mofongo是加勒比地区一种传统料理，主要是用那种绿色的芭蕉�
 
 ![Image](https://wx4.sinaimg.cn/mw1024/442a2c85ly1g05wukf9euj20v80kunlg.jpg "Image")
 
-![Image](http://wx4.sinaimg.cn/large/442a2c85ly1g05wulx0mwj20v80ku7rj.jpg "Image")
+![Image](https://wx4.sinaimg.cn/large/442a2c85ly1g05wulx0mwj20v80ku7rj.jpg "Image")
 圣胡安老城区北部海岸线
 
 ![Image](https://wx3.sinaimg.cn/large/442a2c85ly1g0dzwa89igj24mo334nph.jpg "Image")
