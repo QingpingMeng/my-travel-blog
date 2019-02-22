@@ -51,7 +51,7 @@ const articlePreview = ({ node }) => {
               to={node.fields.slug}
               component={GatsbyLink}
             >
-              Read
+              阅读
             </Button>
           </CardContent>
         </Overlay>
