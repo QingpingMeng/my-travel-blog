@@ -27,11 +27,11 @@ coverImage: ./cover.jpg
 
 因为飞机上一夜也没怎么睡好，再一次证明在飞机上补睡眠是不靠谱的，到了酒店其实已经非常困了，直接先睡了一觉，起来发现天都黑了，正好出去觅个食。 Yelp上查到一家附近一家评价不错的餐厅叫做[Punto de Vista Rooftop Restaurant](https://www.yelp.com/biz/punto-de-vista-rooftop-restaurant-san-juan-2?osq=Restaurants), 这家饭店晚上生意还挺好，我们到的时候排队需要一个小时，不过最后前台看我们真的很饿，等了半个小时就让我们上去了。 餐厅整体非常推荐，好吃不贵，点了当地特色的Mofongo, 鱿鱼沙拉，和手撕猪肉Taco和一杯Pina Colada，都非常赞。
 
-![牛柳Monfongo](https://wx4.sinaimg.cn/large/442a2c85ly1g04o81s8lvj23402c0kjm.jpg "牛柳Monfongo")
+![IMG_5873.jpg](https://i.loli.net/2019/11/26/oAlGYHvjepZ3dzk.jpg)
 
 Mofongo是加勒比地区一种传统料理，主要是用那种绿色的芭蕉炸过以后做成泥，口感非常类似土豆泥，上面摆上各种肉类，比如牛柳，鸡肉或者虾，然后浇上大蒜和其他调味料的酱汁。
 
-![鱿鱼沙拉](https://wx2.sinaimg.cn/large/442a2c85ly1g04o859ix1j23402c04qr.jpg "鱿鱼沙拉")
+![IMG_5872.jpg](https://i.loli.net/2019/11/26/X4oAstyDQjuzJlK.jpg)
 非常爽口的鱿鱼沙拉. Taco和Pina Colada都忘了照相了。。。 
 
 ## 第二天
@@ -39,17 +39,17 @@ Mofongo是加勒比地区一种传统料理，主要是用那种绿色的芭蕉�
 
 酒店附近查到一个看起来挺不错的华夫饼店叫做[Waffle-Era](https://www.yelp.com/biz/waffle-era-san-juan)，就决定去那把早饭先解决了。 点了一个甜的华夫饼和一个咸口的华夫饼~~甜咸党退散~~，味道很不错。
 
-![甜口华夫饼](https://wx2.sinaimg.cn/large/442a2c85ly1g04p910zaoj23402c0kjl.jpg "甜口华夫饼")
+![IMG_5878.jpg](https://i.loli.net/2019/11/26/QKt3ilzSsfkpEeH.jpg)
 华夫饼配草莓，冰激凌，和榛子巧克力酱，非常好吃！
 
-![咸口华夫饼](https://wx2.sinaimg.cn/large/442a2c85ly1g04p94lhzij23401n9u0x.jpg "咸口华夫饼")
+![IMG_5877.jpg](https://i.loli.net/2019/11/26/cYrjlCUnVTuJ2Da.jpg)
 两个鸡蛋和火腿配青酱，也挺好吃不过还是甜的更好吃！
 
 吃饱喝足了就准备出发了，目的地叫做Cueva del Indio, 据说是加勒比海盗里面的取景地之一，就准备去看一看。路上从圣胡安老城开过去大概要两个小时，一路上因为导航不小心设置了不走收费公路，一路都是乡下小路，感觉真的挺破败的, 不过到了地方真的被景色给惊到了，不多说上图。
 
-![Image](https://wx4.sinaimg.cn/large/442a2c85ly1g04p96i37oj20v80ku1gp.jpg "Image")
+![IMG_5879.jpg](https://i.loli.net/2019/11/26/CU2EoGrNsFRT3xP.jpg)
 
-![Image](https://wx4.sinaimg.cn/large/442a2c85ly1g04p97znrej20v80kukg8.jpg "Image")
+![DSC02681.jpg](https://i.loli.net/2019/11/26/qZ4tufNihXRYHDm.jpg)
 
 其实这个景点是一个私人领地，入园一人$5，而且只收现金。 一定一定要带一双好走的鞋，因为整个景点都布满了崎岖不平的火山岩，非常难走。如果穿了个拖鞋那就GG了。。
 
@@ -92,37 +92,37 @@ Mofongo是加勒比地区一种传统料理，主要是用那种绿色的芭蕉�
 > 图片来源[TravelMaps](https://www.travelmaps.com/files/2515/1637/5884/PR_TravelMaps.pdf)
 
 ### 圣克里斯多巴城堡
-![Image](https://wx4.sinaimg.cn/mw1024/442a2c85ly1g05wu7e3mpj20v80kuh9w.jpg "Image")
+![DSC02705.jpg](https://i.loli.net/2019/11/26/L3rRZb4QaxNiPYu.jpg)
 
-![Image](https://wx3.sinaimg.cn/mw1024/442a2c85ly1g05wu61i7jj20v80kuttq.jpg "Image")
+![DSC02707.jpg](https://i.loli.net/2019/11/26/QPjp1Ea8ZyDl5fu.jpg)
 
-![Image](https://wx1.sinaimg.cn/mw1024/442a2c85ly1g05wuixb1qj24mo3344qu.jpg "Image")
+![DSC02720.jpg](https://i.loli.net/2019/11/26/lEfZOINwnjhavCS.jpg)
 
 首先是圣克里斯多巴城堡，也就是上图中城堡1标注的位置，可以看到其实离酒店非常近，走路很快就到了，就是一路都是上坡。
 虽然相比后面的城堡这个略小一些，但是还是蛮壮观的，城堡里面是收费的，一人$7, 因为时间比较赶~~觉得略贵~~，就没进去。
 城堡里面很容易见到上图的蜥蜴，当地人说这种蜥蜴都是食草动物，性情都比较温和，很喜欢晒太阳，见到也不需要太奇怪
 
-![Image](https://wx2.sinaimg.cn/mw1024/442a2c85ly1g05wud4z80j24mo334b2e.jpg "Image")
+![DSC02712.jpg](https://i.loli.net/2019/11/26/N9ZlB2zIunR3tPi.jpg)
 去城堡的路上，整个圣胡安老城都是这种五颜六色的的建筑，风格非常特别，在美国本土很少见。
 
 ### 圣菲利佩城堡
 游览完圣克里斯多巴，就准备往圣菲利佩城堡出发了，地图上看起来在地图另外一头，但是实际上路程也就八九百米的距离。
 
-![Image](https://wx4.sinaimg.cn/mw1024/442a2c85ly1g05wukf9euj20v80kunlg.jpg "Image")
+![DSC02715.jpg](https://i.loli.net/2019/11/26/lixtu5YLT8RICBn.jpg)
 
-![Image](https://wx4.sinaimg.cn/large/442a2c85ly1g05wulx0mwj20v80ku7rj.jpg "Image")
+![DSC02725.jpg](https://i.loli.net/2019/11/26/zGN6n2vwiP8l7Rp.jpg)
 圣胡安老城区北部海岸线
 
-![Image](https://wx3.sinaimg.cn/large/442a2c85ly1g0dzwa89igj24mo334nph.jpg "Image")
+![DSC02731.jpg](https://i.loli.net/2019/11/26/zN5UTeYFfyRQSWn.jpg)
 双线进入视野的是超大一片草坪，非常非常绿，背景是蓝色的加勒比海和蓝天白云，中间坐落着圣菲利佩城堡
 
-![Image](https://wx1.sinaimg.cn/large/442a2c85ly1g0dzwbjjwzj20v80kuarb.jpg "Image")
+![DSC02747.jpg](https://i.loli.net/2019/11/26/vcN9h5x7ywAmL2E.jpg)
 从另外一个角度看过去，远处的加勒比海上还有一艘小白船
 
-![Image](https://wx2.sinaimg.cn/large/442a2c85ly1g0dzwfnarwj23402c0npf.jpg "Image")
+![Adjustments.jpg](https://i.loli.net/2019/11/26/hFs3xNtd7kXHRcA.jpg)
 偶然发现一只雄性蜥蜴在和另外一个母蜥蜴调情，但是咬人家尾巴是几个意思？都咬烂了喂！
 
-![Image](https://wx2.sinaimg.cn/large/442a2c85ly1g0dzwn9trhj24mo334x6y.jpg "Image")
+![DSC02771.jpg](https://i.loli.net/2019/11/26/ioONneZbKhHJWMp.jpg)
 城堡一角
 
 这个城堡花了七块钱进去参观了一下，里面其实超大，上下一共五层，远超出我的想象，稍微有点赶时间所以没有仔细的逛完，但是还是值得一逛的，很多小景点。逛完城堡之后已经是十二点十五了，因为下午两点还要退房，我们决定返程回酒店。
@@ -131,10 +131,10 @@ Mofongo是加勒比地区一种传统料理，主要是用那种绿色的芭蕉�
 
 地图上黄色的路就是步道啦~~一开始还以为是游览车路线~~，全程长度大约1600米，根据不同的脚力差不多30-60分钟走完吧，中午天气很热记得一定要在城堡里的商店里买瓶冰水。路上意外的发现步道景色真的很好！
 
-![Image](https://wx3.sinaimg.cn/large/442a2c85ly1g0dzwp56goj20v80kuke1.jpg "Image")
+![DSC02796.jpg](https://i.loli.net/2019/11/26/sWwiaeBOZE9pjHA.jpg)
 步道全是铺装非常好的木板路，右手边就是加勒比海，一路景色都很赏心悦目
 
-![Image](https://wx2.sinaimg.cn/large/442a2c85ly1g0dzw4c055j24mo3341l3.jpg "Image")
+![DSC02784.jpg](https://i.loli.net/2019/11/26/uNVnUeJE2S6sR9W.jpg)
 远处的小岛
 
 一路走下来到最后真的走不动了。。虽然有海风吹着，但是大中午的真的很热。。还好在2点前赶回了酒店完成了退房，准备去下一站Vieques小岛
@@ -144,10 +144,10 @@ Mofongo是加勒比地区一种传统料理，主要是用那种绿色的芭蕉�
 
 > https://www.viequesairlink.com/ 从这家航空公司订票
 
-![Image](https://wx3.sinaimg.cn/large/442a2c85ly1g0e0x8z5j5j23402c01kx.jpg "Image")
+![IMG_5943.jpg](https://i.loli.net/2019/11/26/4NawbKgSIHGnxld.jpg)
 全是这种小飞机，很稳的! 是去幼儿园的车！
 
-![Image](https://wx3.sinaimg.cn/large/442a2c85ly1g0e0xbv1z4j23402c0b29.jpg "Image")
+![IMG_5948.jpg](https://i.loli.net/2019/11/26/UBa84TCIcXYeoAJ.jpg)
 俯瞰加勒比海
 
 # 第二站 Vieques岛
@@ -156,13 +156,13 @@ Mofongo是加勒比地区一种传统料理，主要是用那种绿色的芭蕉�
 ### El Blok酒店
 酒店据说是个网红酒店，不过其实期望不要太高，也就是个能住的酒店。。 卫生条件还可以，因为飓风的损坏，我入住的时候白天还是有施工。说是网红酒店，其实我觉得就是因为岛上住的地方也不多，所以也就是矮子里面挑将军。
 
-![Image](https://wx1.sinaimg.cn/large/442a2c85ly1g0e18oz0cuj23402c0hdt.jpg "Image")
+![IMG_5952.jpg](https://i.loli.net/2019/11/26/WhwKDblEsBRrpjN.jpg)
 房间全景，其实是有个小阳台的，而且阳台上有个秋千，感觉还挺好玩
 
-![Image](https://wx4.sinaimg.cn/large/442a2c85ly1g0e18ux7boj23402c0e81.jpg "Image")
+![IMG_5958.jpg](https://i.loli.net/2019/11/26/EIo4ALrYMq9JUPT.jpg)
 V岛落日
 
-![Image](https://wx3.sinaimg.cn/large/442a2c85ly1g0e18la1hzj23402c0b29.jpg "Image")
+![IMG_5955.jpg](https://i.loli.net/2019/11/26/hBbEpTCYarqMwPU.jpg)
 楼顶的小泳池
 
 晚餐就在酒店附近随便挑了一家店叫[Bili Restaurant](https://www.yelp.com/biz/bili-restaurant-vieques). 点了一份咖喱味的鱿鱼圈和Tuna配炸的芭蕉片和一份波多黎各烩饭。炸芭蕉片莫名的好吃，有点像国内吃的一种糕点，实在是忘记名字了，整体味道都挺好的，不过Pina Calada就不要点了，朗姆酒比较多，喝起来味道比较寡淡。
@@ -187,15 +187,15 @@ V岛落日
 ### 瑞吉巴伊亚度假酒店
 这应该算是第一次入住豪华酒店了，一进入酒店就散发这一种这里面住的都是土豪的感觉，一瞬间感觉有种是不是走错了的感觉。酒店整体上感觉非常奢华，占地面积也非常非常大，从进大门到开到前台差不多有快十分钟了。如果不是积分兑换，我应该是不会花现金入住的。。 即便如此两晚16w积分还是有点点心疼的。
 
-![Image](https://wx4.sinaimg.cn/large/442a2c85ly1g0e35o1vojj23402c0hdt.jpg "Image")
+![IMG_5968.jpg](https://i.loli.net/2019/11/26/76jUalMmAtZdDHq.jpg)
 
-![Image](https://wx1.sinaimg.cn/large/442a2c85ly1g0e35e26a6j22c0340e81.jpg "Image")
+![IMG_5970.jpg](https://i.loli.net/2019/11/26/1YExJrdiO2569RK.jpg)
 房型是海景房，整个房间非常大！带一个非常舒服的阳台，阳台外面就是大海，可以在阳台上葛优瘫看海，海风一吹别提多惬意了
 
-![Image](https://wx4.sinaimg.cn/large/442a2c85ly1g0e35k4vhhj20v80ku7wh.jpg "Image")
+![DSC02832.jpg](https://i.loli.net/2019/11/26/1fPIeXKk2OBv3L6.jpg)
 阳台外的景色，步行距离可达酒店私人海滩
 
-![Image](https://wx3.sinaimg.cn/large/442a2c85ly1g0e35txp18j23402c0hdt.jpg "Image")
+![IMG_5983.jpg](https://i.loli.net/2019/11/26/DLwU7pTXRt5BVW3.jpg)
 在海滩上支个帐篷，正巧碰上中间是国内除夕，在海滩上拿个iPad看春晚，正好
 
 这部分其实可以记录的不多，基本就是在酒店各种发呆，看春晚看超级碗。酒店有水上中心可以免费租皮划艇，租自行车，还有各种泳池可以折腾。唯一的缺点是海边过了下午五点以后，风一吹真的有点凉，平常浪也很大，像我这种旱鸭子下水是没戏了。重点批评一下酒店的餐厅，真的是又贵又难吃，我们最后几天都是出去买了一堆肥宅套餐回来，吃的非常开心。
