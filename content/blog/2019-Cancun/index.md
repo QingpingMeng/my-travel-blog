@@ -19,10 +19,10 @@ coverImage: ./cover.jpg
 酒店分为两部分，一共六晚。因为前两天要出去玩，就没有订全包式酒店，找了个稍微便宜的这样也不心疼，后三天就入住全包式酒店开始吃睡睡吃模式。
 
 前三晚的酒店是Fairmont Mayakoba Resort，从Amex FHR上订的，住两晚送一晚，把均价拉到190刀一晚，可以说是非常超值了。当然还是要付一天50刀的Resort Fee的。从FHR上订还有的好处就是每天免费的双早，100刀的酒店消费报销，还有保证下午4点退房。总之还是很不错的。
-![Image](https://www.fairmont.com/assets/0/137/11595/11654/11656/14381/967ffb82-be19-4b99-afc3-e140a69746b4.jpg) 
+![fairmont.jpg](https://i.loli.net/2020/01/17/qiZDxXvCLpR1AaT.jpg) 
 
 后三晚的酒店是著名的网红酒店，Hyatt Ziva Cancun，差不多要470一晚上，具体后面会讲到。
-![Image](https://assets.hyatt.com/content/dam/hyatt/hyattdam/images/2016/06/19/1832/Hyatt-Ziva-Cancun-P167-Aerial-View-South-East.jpg/Hyatt-Ziva-Cancun-P167-Aerial-View-South-East.16x9.jpg?imwidth=1280)
+![ZIVA.jpg](https://i.loli.net/2020/01/17/YJiAywbaDjc2861.jpg)
 
 ### 交通
 出去玩不管去哪，我还是比较习惯租车的，比较自由，想去哪就去哪。而且再墨西哥公共交通不便，也基本打不到Uber，这么算下来租车还便宜一点。去之前一直担心在墨西哥开车会不会不好开。实际上完全不必担心，跟美国本土开车基本差不多，可能有些地方还容易一点。最重要的是坎昆租车还蛮便宜的，大头都是保险，酒店也都是免费停车。我租了三天下来一共是100出头。
@@ -351,7 +351,7 @@ coverImage: ./cover.jpg
 
 ### 粉红湖
 
-![pink](https://pic.qyer.com/album/user/3024/34/QklXRhkDY0A/index?imageMogr/v2/auto-orient/thumbnail/!2560x800r/gravity/Center/crop/2560x800/format/webp)
+![pink](https://i.loli.net/2020/01/17/5WKECidIkhRwgmc.jpg)
 > 图片来自qyer.com
 
 这个应该是网红打卡地了，但是据说远没有网上放出来的照片那么震撼。加上粉红湖离坎昆单程要四个小时，其实不算很值得去。
