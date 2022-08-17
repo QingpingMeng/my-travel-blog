@@ -33,6 +33,7 @@ module.exports = {
               maxWidth: 590,
             },
           },
+          `gatsby-remark-emoji`,
           {
             resolve: `gatsby-remark-responsive-iframe`,
             options: {
@@ -85,7 +86,6 @@ module.exports = {
         },
       },
     },
-    `gatsby-plugin-feed`,
     {
       resolve: `gatsby-plugin-manifest`,
       options: {
